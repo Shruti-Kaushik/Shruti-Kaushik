@@ -1,4 +1,4 @@
-![logo](https://media.tenor.com/F0JE157P1loAAAAC/mio-akiyama-computer.gif)
+![logo](https://thumbs.gfycat.com/RipeChiefCrow-size_restricted.gif)
 <h1 align="center">Hi 👋, I'm shruti kaushik</h1>
 <h3 align="center">A passionate frontend developer from India</h3>
 
